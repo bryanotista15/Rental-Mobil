@@ -48,4 +48,4 @@ Untuk cara instalasi dan konfigurasi caranya sangat mudah
 
 ### Tentang Saya
 
-Fakhrul Nugroho siswa Kelas 12 Jurusan Teknik Komputer Informatika di SMK Negeri 1 Wanareja. https://www.instagram.com/nugrohospace/
+Natalino Marulitua Manuel Bryan Fresh Graduate Jurusan Teknik Komputer Informatika di STMIK Mardira Indonesia. https://www.instagram.com/bryanotistaa/
